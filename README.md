@@ -13,7 +13,7 @@ This tool is made to reactivate closed or disabled Instagram accounts
 
 This tool is made to reactivate closed or disabled Instagram accounts
 
-tool can unbanned all th
+tool can unbanned all
 
 
 tool working %100
