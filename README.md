@@ -16,13 +16,10 @@ This tool is made to reactivate closed or disabled Instagram accounts
 
 tool working %100
 
-if you want to buy it contact me on instagram
+if you want to b/uy it contact me on telegram
+
+https://t.me/rootabrzi
+
+or on instagram
 
 https://instagram.com/mdip?igshid=NTc4MTIwNjQ2YQ==
-
-or on telegram
-
-https://t.me/abrzi505
-
-
-
